@@ -1,0 +1,1 @@
+[notion](https://app.notion.com/p/Linguagens-de-Programa-o-Aplicada-a-An-lise-de-Dados-LPAAD-7cb2805a4c0582838aae01e324ec0216?source=copy_link)
